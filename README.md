@@ -1,25 +1,16 @@
 <p align="center">
-  <a href="https://rentry.co/stagdwle">ʀᴇɴᴛʀʏ</a> ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ୨ৎ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ <img src="https://komarev.com/ghpvc/?username=cxstiiel&color=461ac8&style=plasic&label=｡𖦹°‧⭑.ᐟ"> ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ୨ৎ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ <a href="https://pronouns.cc/@stagdwle">ᴘʀᴏɴᴏᴜɴ</a>
+ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ୨ৎ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ <img src="https://komarev.com/ghpvc/?username=cxstiiel&color=000000&style=plasic&label=　𓆩♱𓆪　"> ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ୨ৎ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ 
 </p>
 
 <p align="center">
-  <img src="https://i.postimg.cc/0yHCkSF0/Untitled86-20250920145250.png" | width=475 style="font-size:"/>
+  <img src="https://64.media.tumblr.com/ef112c34b85dc730cd5e77b6c829e7c9/079067f589d53d76-70/s100x200/8b04083d9db0a192138bcc7e894bda0e7952e72a.gifv" | width=100 style="font-size:"/>
 </p>
 
-<p align="center">
-  <img src="https://i.postimg.cc/wMKf6NtG/tumblr-7f517c53ee46273161b840066c2a1a4a-96c8e78e-400.jpg"/>
-</p>
 
 <p align="center">
-<img src="https://64.media.tumblr.com/ca409d84d8e95a8aca60ada5668fc292/8d84ef954cf39dd9-b6/s250x400/4a992b13c55ae26dae3e6336b9023a821c5bcedc.gifv">     𝓑𝓔𝓝 𝓞𝓡 𝓜𝓘𝓚𝓐⠀⠀<img src="https://pixels.crd.co/assets/images/gallery20/438c9920.gif?v=29416114">⠀⠀6ᴛᴇᴇɴ ʏᴏ
+<img src="https://64.media.tumblr.com/50b1b51122fbf07b01995bc72078db2f/86f0c5b7edbcb628-a1/s75x75_c1/71322127e638ad31a14a08ecbbd12b7eb06776b6.gifv">⠀ ꜱɪɢɴ ᴀᴛᴀ   ， ／  ᴍᴏꜱᴛʟʏ ᴏꜰꜰᴛᴀʙ⠀ (;>⠀<;)
 </p>
 
-<p align="center">
-ʙᴇɢɪɴɴᴇʀ ᴀʀᴛɪꜱᴛ ⠀<img src="https://pixels.crd.co/assets/images/gallery71/ec8bec8e.gif?v=29416114">⠀ ꜱɪɢɴ ᴀᴛᴀ   ， ／  ᴍᴏꜱᴛʟʏ ᴏꜰꜰᴛᴀʙ⠀ (;>⠀<;) ! !
-</p>
-
-<p align="center">
-  <img src="https://i.postimg.cc/LsbQbwmR/tumblr-28cdbfc6f7f084ddb174bfbc61e29acd-a439cddc-100.png">      <img src="https://i.postimg.cc/hGj3McWp/tumblr-004a7434ef4ba4b20aae3d05119d967d-a2c8f2fe-100.png">     <img src="https://i.postimg.cc/fLSqnCbd/tumblr-498445ec0e3ad59d9999130afebebdd5-518ca5de-100.png">
 
 <p align="center">
 <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=8qjzua4g5ryvk12mr2oq10sp4&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=53b14f&bar_color_cover=true">
