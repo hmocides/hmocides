@@ -7,7 +7,7 @@
 </p>
 
 <p align="center">
-  <img src="https://64.media.tumblr.com/ef112c34b85dc730cd5e77b6c829e7c9/079067f589d53d76-70/s100x200/8b04083d9db0a192138bcc7e894bda0e7952e72a.gifv" | width=100 style="font-size:"/>
+  <img src="https://i.postimg.cc/gkmnxqQV/ezgif-6081425bfd4d8ecb.gif" | width=200 style="font-size:"/>
 </p>
 
 <p align="center">
